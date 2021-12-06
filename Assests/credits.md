@@ -40,3 +40,13 @@ Attribution (3.0)
 
 ---
 
+"* Dark Room *" by pareeerica is licensed under CC BY-NC 2.0
+
+---
+
+"Spectre"
+by Eric Vondy
+
+2009 - Liscensed under 
+CC BY-NC-ND 2.0
+
